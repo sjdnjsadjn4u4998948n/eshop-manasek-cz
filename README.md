@@ -1,0 +1,1 @@
+# eshop-manasek-cz
